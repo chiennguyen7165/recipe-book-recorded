@@ -8,7 +8,7 @@
 - Other toppings by 
 - Tortillas
 
-# Instructions
+## Instructions
 - Begin rice first
 - Fry Härkis in a pan according to its instructions, until cooked
 - Add tomato saurce and cook until it becomes less liquid
