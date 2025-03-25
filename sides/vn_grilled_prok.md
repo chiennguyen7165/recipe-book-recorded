@@ -11,6 +11,7 @@
 - ½ cup minced lemongrass
 - salt and pepper to taste
 - bamboo or metal skewers (optional)
+- pickled carrots and daikon (topping - optional)
 
 
 ## Instructions
