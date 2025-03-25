@@ -1,6 +1,6 @@
 # Simple härkis burritos
 
-## Ingredinents
+## Ingredients
 - Härkis, one pack (200-300g)
 - Rice, your choice
 - Salt
