@@ -15,7 +15,7 @@
 
 - chop avocados
 - chop onion
-- chop chili
+- chop chilli
 - squeeze lime
 - add salt
 - and mix well
