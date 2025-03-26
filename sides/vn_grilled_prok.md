@@ -9,7 +9,8 @@
 - 3-4 cloves of garlic, minced
 - 1-2 shallots, minced
 - ½ cup minced lemongrass
-- salt and pepper to taste
+- salt
+- pepper
 - bamboo or metal skewers (optional)
 
 ## Instructions
